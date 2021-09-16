@@ -21,7 +21,7 @@ Dry Mix
 
 Wet Mix
 - 1/3 cup water
-- 1.5 Tbsp red wine vinegar
+- 1.5 Tbsp vinegar (eg. apple cider, rice, red wine; any of these are fine)
 - 1 tsp lime juice
 - 1 tsp Better Than Bouillon - Not Beef
 - 1 tsp Tomato Paste
