@@ -24,18 +24,18 @@ Wet Mix
 - 1.5 Tbsp vinegar (eg. apple cider, rice, red wine; any of these are fine)
 - 1 tsp lime juice
 - 1 tsp Better Than Bouillon - Not Beef
-- 1 tsp Tomato Paste
+- 1 tsp tomato paste
 - ~8 drops Maggi seasoning
 - Maggi veg bouillon cube
 
 Simmer Sauce
 - 1 tsp each:
-    - Molasses
-    - Shiitake powder
-    - Onion powder
+    - molasses
+    - shiitake powder
+    - onion powder
     - Better Than Bouillon - Not Beef
-    - Olive oil
-- .5 tsp red wine vinegar
+    - olive oil
+- .5 tsp vinegar
 - .5 tsp lime juice
 - Enough water to almost cover filet
 
